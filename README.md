@@ -1,4 +1,6 @@
-Clinical Ops at Neuralink, Founder at WinterDesign, Angel. Frontier Tech, Strategy, Design, Product, Engineering, Ex-Med.
+Clinical Ops at Neuralink 🧠
+Ex-Doctor, Engineer, Product Designer, Angel, Content Creator.  
+Passions are adventure, design, mental health, art, music, startups, investing, and the occasional game.
 
 <!---
 wintercharm/wintercharm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
