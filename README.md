@@ -1,4 +1,4 @@
-Clinical Ops at Neuralink 🧠. Ex-Doctor 🩺, Engineer 👨‍💻, Product Designer 🦾, Angel 😇, Content Creator 🎥.  
+Clinical Product and Data at Neuralink 🧠. Ex-Doctor 🩺, Engineer 👨‍💻, Product Designer 🦾, Angel 😇, Content Creator 🎥.  
 Passions are adventure , design, mental health, art, music, startups, investing, and the occasional game.
 
 <!---
